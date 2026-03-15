@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @davilrajpoot0
+- 👋 Hi, I’m @Waqae Rajpoot
 - 👀 I’m interested in ... ethical heacking
 - 🌱 I’m currently learning ... heacking and cording 
 - 💞️ I’m looking to collaborate on ... any one
